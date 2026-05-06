@@ -1,4 +1,4 @@
-
+no-ban rivals Script is the best rivals Script, featuring aimbot and custom skins. Safe and powerful for all your needs.
 
 
 
